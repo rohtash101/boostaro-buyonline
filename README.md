@@ -1,2 +1,2 @@
-# boostaro-buyonline
-Gluco6™ supports balanced blood sugar and boosts energy naturally. Order your bottle for only $39 at 80% off – visit our site for reviews, pricing, and offers!
+# fitspresso-buyonline
+FitSpresso™ fuels your weight loss journey naturally. Get your $39 bottle at 83% off—visit our site for reviews, pricing, and exclusive offers!
